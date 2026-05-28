@@ -14,7 +14,7 @@
 
 ☆ Cosmo kinnie
 
-☆ Multishipper! Mooncake + Fruitcake are my super faves, but I also like Berryfunny, Moonberry, Partycraft and more! As long as it's not immoral or illegal I will probs like it!
+☆ Multishipper! Mooncake + Fruitcake are my super faves, but I also like more! As long as it's not immoral or illegal I will probs like it!
 
 ☆ If u want any of my socials just ask on my strawpage/ata w ur user!
 
