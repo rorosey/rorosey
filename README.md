@@ -1,16 +1,37 @@
-## Hi there 👋
+## MY INTRO (˶^⩊^˶)
 
-<!--
-**rorosey/rorosey** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+☆ My name is Ros! I'm 19 bodily yrs and autistic,,, I have social anxiety so I may be awkward to talk to at first!
 
-Here are some ideas to get you started:
+☆ I will draw in strawpages if u want! I rlly enjoy drawing!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+☆ Hyperfix on Dandy's World!! Faves are Cosmo + Astro
+
+☆ Cosmo kinnie
+
+☆ Multishipper! Mooncake + Fruitcake are my super faves, but I also like Berryfunny, Moonberry, Partycraft and more! As long as it's not immoral or illegal I will probs like it!
+
+☆ If u want any of my socials just ask on my strawpage w ur user!
+
+<img width="680" height="510" alt="mooncake 1" src="https://github.com/user-attachments/assets/47086a2c-da29-48ed-88b0-b745ec034d27" />
+
+art by cosmofanclub on twt
+
+# Please Interact!!! 𖦹
+
+☆ Mooncake + Fruitcake shippers
+
+☆ Anyone 18+
+
+☆ Dandy's World cosplayers! 
+
+# DNI 𖦹
+
+☆ Proship, Darkship, Loli/Shota/Koda, Zoophiles, anything abt incest, pedophilia, or animals is a no go.
+
+☆ Basic DNI ( Homophobes, sexists, racists, etc )
+
+☆ If you publicly say sexual stuff in the safe servers, kids are there!
+
+# Thin Ice 
+
+☆ People under 16, don't int with me much beyond small talk...
