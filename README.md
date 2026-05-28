@@ -12,7 +12,7 @@
 
 ☆ Hyperfix on Dandy's World!! Faves are Cosmo + Astro
 
-☆ Cosmo kinnie
+☆ Cosmo kinnie + Astro yume
 
 ☆ Multishipper! Mooncake + Fruitcake are my super faves, but I also like more! As long as it's not immoral or illegal I will probs like it!
 
