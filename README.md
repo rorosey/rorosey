@@ -2,6 +2,10 @@
 
 ☆ My name is Ros! I'm 19 bodily yrs and autistic,,, I have social anxiety so I may be awkward to talk to at first!
 
+☆ Any pronouns, He/They/She pref in that order! 
+
+☆ Demigirl + Lesbian
+
 ☆ I will draw in strawpages if u want! I rlly enjoy drawing!
 
 ☆ Hyperfix on Dandy's World!! Faves are Cosmo + Astro
