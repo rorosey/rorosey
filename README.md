@@ -1,6 +1,6 @@
 ## MY INTRO (˶^⩊^˶)
 
-☆ Please INT, c + h heavily encouraged!
+☆ Please interact ( tho u likely have to do it first) !!! c + h heavily encouraged! Not too good at making ponies yet...
 
 ☆ My name is Ros! I'm 19 bodily yrs and autistic,,, I have social anxiety so I may be awkward to talk to at first!
 
