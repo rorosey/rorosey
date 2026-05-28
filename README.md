@@ -40,4 +40,4 @@ art by cosmofanclub on twt
 
 # Thin Ice 𖦹
 
-☆ People under 16, don't int with me much beyond small talk...
+☆ People under 16, don't int with me much beyond small talk... u can also sit w me im just not gonna be ur friend
