@@ -1,5 +1,7 @@
 ## MY INTRO (˶^⩊^˶)
 
+☆ Please INT, c + h heavily encouraged!
+
 ☆ My name is Ros! I'm 19 bodily yrs and autistic,,, I have social anxiety so I may be awkward to talk to at first!
 
 ☆ Any pronouns, He/They/She pref in that order! 
@@ -14,7 +16,7 @@
 
 ☆ Multishipper! Mooncake + Fruitcake are my super faves, but I also like Berryfunny, Moonberry, Partycraft and more! As long as it's not immoral or illegal I will probs like it!
 
-☆ If u want any of my socials just ask on my strawpage w ur user!
+☆ If u want any of my socials just ask on my strawpage/ata w ur user!
 
 <img width="680" height="510" alt="mooncake 1" src="https://github.com/user-attachments/assets/47086a2c-da29-48ed-88b0-b745ec034d27" />
 
