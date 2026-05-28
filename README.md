@@ -36,6 +36,6 @@ art by cosmofanclub on twt
 
 ☆ If you publicly say sexual stuff in the safe servers, kids are there!
 
-# Thin Ice 
+# Thin Ice 𖦹
 
 ☆ People under 16, don't int with me much beyond small talk...
