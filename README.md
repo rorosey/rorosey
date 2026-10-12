@@ -10,25 +10,20 @@
 
 ☆ I will draw in strawpages if u want! I rlly enjoy drawing!
 
-☆ Hyperfix on Dandy's World!! Faves are Cosmo + Astro
-
-☆ Cosmo kinnie + Astro yume
-
-☆ Multishipper! Mooncake + Fruitcake are my super faves, but I also like more! As long as it's not immoral or illegal I will probs like it!
+☆ Hyperfix on Phighting!! Faves are Venomshank, Umbrella, Darkheart, Valk, Dom, Sword
 
 ☆ If u want any of my socials just ask on my strawpage/ata w ur user!
 
-<img width="680" height="510" alt="mooncake 1" src="https://github.com/user-attachments/assets/47086a2c-da29-48ed-88b0-b745ec034d27" />
 
-art by cosmofanclub on twt
+<img width="680" height="383" alt="venomshank verdes art for gh" src="https://github.com/user-attachments/assets/0aa3e4fa-70ec-4fea-b536-2ce82ad69bd0" />
+
+art by VerdesArt on twt
 
 # Please Interact!!! 𖦹
 
-☆ Mooncake + Fruitcake shippers
-
 ☆ Anyone 18+
 
-☆ Dandy's World cosplayers! 
+☆ Phighting cosplayers!
 
 # DNI 𖦹
 
@@ -40,4 +35,4 @@ art by cosmofanclub on twt
 
 # Thin Ice 𖦹
 
-☆ People under 16, don't int with me much beyond small talk... u can also sit w me im just not gonna be ur friend
+☆ People under 16, don't int with me much beyond small talk... u can still sit w me too
