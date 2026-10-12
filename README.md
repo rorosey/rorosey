@@ -2,7 +2,7 @@
 
 ☆ Please interact ( tho u likely have to do it first) !!! c + h heavily encouraged! Not too good at making ponies yet...
 
-☆ My name is Ros! I'm 19 bodily yrs and autistic,,, I have social anxiety so I may be awkward to talk to at first!
+☆ My name is Ros! I'm 19 and autistic,,, I have social anxiety so I may be awkward to talk to at first!
 
 ☆ Any pronouns, He/They/She pref in that order! 
 
