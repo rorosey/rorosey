@@ -10,7 +10,7 @@
 
 ☆ I will draw in strawpages if u want! I rlly enjoy drawing!
 
-☆ Hyperfix on Phighting!! Faves are Venomshank, Umbrella, Darkheart, Valk, Dom, Sword
+☆ Hyperfix on Phighting!! Faves are Venomshank, Umbrella, Darkheart, Valk, Dom, Sword, and basically everyone else...
 
 ☆ If u want any of my socials just ask on my strawpage/ata w ur user!
 
