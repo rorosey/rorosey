@@ -4,6 +4,8 @@
 
 ☆ My name is Ros! I'm 19 bodily yrs and autistic,,, I have social anxiety so I may be awkward to talk to at first!
 
+☆ Not super good at making ponies...
+
 ☆ Any pronouns, He/They/She pref in that order! 
 
 ☆ Demigirl + Lesbian
