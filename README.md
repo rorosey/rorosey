@@ -4,8 +4,6 @@
 
 ☆ My name is Ros! I'm 19 bodily yrs and autistic,,, I have social anxiety so I may be awkward to talk to at first!
 
-☆ Not super good at making ponies...
-
 ☆ Any pronouns, He/They/She pref in that order! 
 
 ☆ Demigirl + Lesbian
@@ -15,7 +13,6 @@
 ☆ Hyperfix on Phighting!! Faves are Venomshank, Umbrella, Darkheart, Valk, Dom, Sword, and basically everyone else...
 
 ☆ If u want any of my socials just ask on my strawpage/ata w ur user!
-
 
 <img width="680" height="383" alt="venomshank verdes art for gh" src="https://github.com/user-attachments/assets/0aa3e4fa-70ec-4fea-b536-2ce82ad69bd0" />
 
